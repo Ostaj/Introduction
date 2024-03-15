@@ -13,7 +13,7 @@ O- Ostaj Sahu
 
 A- Akash Vamsi
 
-D- Devnash Mittal
+D- Devansh Mittal
 
 
 More coming soon...
